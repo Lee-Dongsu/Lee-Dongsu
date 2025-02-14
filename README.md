@@ -36,3 +36,5 @@ GitHub: [Lee-Dongsu](https://github.com/Lee-Dongsu)
 
 이메일: ehdtnehdtn95@naver.com
 
+링크드인: [이동수](https://www.linkedin.com/in/%EB%8F%99%EC%88%98-%EC%9D%B4-016b64324/)
+
